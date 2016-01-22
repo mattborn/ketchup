@@ -1,3 +1,5 @@
+![Ketchup](http://a.fastcompany.net/multisite_files/coexist/imagecache/1280/article_feature/1280-2-liquiglide-ketchup-bottle.jpg)
+
 # Formal Catch Up
 
 * Not coding comprehension, memorization, or output
