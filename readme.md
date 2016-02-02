@@ -1,4 +1,4 @@
-![Ketchup](http://a.fastcompany.net/multisite_files/coexist/imagecache/1280/article_feature/1280-2-liquiglide-ketchup-bottle.jpg)
+![Ketchup](http://mattborn.s3.amazonaws.com/bloc/Bureau-1604-Ketchup-1.jpg)
 
 # Formal Catch Up
 
